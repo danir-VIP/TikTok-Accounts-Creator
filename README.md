@@ -1,8 +1,8 @@
 # TikTok-Accounts-Creator
 TikTok Accounts Creator: Futures : No ShadowBan Device Registration Need Proxies Captcha Solver All Algorithms Updated API (Web/Android/iOS) TikTok Lite API Auto E-mail Confirmation 100% Requests No Selenium Other APIs (Like/Follow/Comment...)  Last version 
-contact telegram https://t.me/danirusa
+contact telegram https://t.me/daniruee
 
-telegram chanel https://t.me/toolsgit
+telegram chanel https://t.me/toolsgi
 
 # TikTok-帳戶-創建者
  TikTok 帳戶建立者：期貨：無需ShadowBan 裝置註冊需要代理驗證碼解算器所有演算法更新API（Web/Android/iOS）TikTok Lite API 自動電子郵件確認100% 請求無Selenium 其他API（按讚/追蹤/評論…）最新版本
